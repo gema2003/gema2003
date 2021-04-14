@@ -32,5 +32,6 @@ Mis conocimientos:
 
 Aca encuentras mi Folder:
 
-> Dirección:
-[myFolder](https://gema2003.github.io/myFolder/)
+> Passsord de mi Foldeer:
+User: Invited
+Clave: 55053
