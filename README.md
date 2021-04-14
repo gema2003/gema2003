@@ -32,6 +32,6 @@ Mis conocimientos:
 
 Aca encuentras mi Folder:
 
-> Password de mi Foldeer:
+> Password de mi Folder:
 User: Invited,
 Clave: 55053
