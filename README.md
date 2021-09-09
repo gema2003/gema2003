@@ -30,7 +30,7 @@ Mis conocimientos:
 
 🎶 Amante de la buena musica, el arte, la lectura y porsupuesto la Programación.
 
-Aca encuentras mi Folder:
+Toda mi información en mi Folder:
 
 > Password de mi Folder:
 User: Invited,
