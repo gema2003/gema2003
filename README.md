@@ -26,7 +26,7 @@ Mis conocimientos:
 - ⚙️ Node js ...
 
 
-🖥 gusto por Apple  razon por la que utilizo ✨ Mac OS ✨  como sistema operativo, también me agrada ✨ Linux ✨.
+🖥 Gusto por Apple  razon por la que utilizo ✨ Mac OS ✨  como sistema operativo, también me agrada ✨ Linux ✨.
 
 🎶 Amante de la buena musica, el arte, la lectura y porsupuesto la Programación.
 
