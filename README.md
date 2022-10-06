@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Junior Developer Frontend Web & iOS
+### Hi there 👋 I'm Junior Web Developer Frontend & something of iOS...
 
 
 **Gema2003** The idea is not ✨ _to live forever_ ✨ it's to create something that will.
